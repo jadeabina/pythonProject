@@ -13,4 +13,4 @@ Aprendendo cada dia!!
 
 🤝 Este repositório foi criado para fins de estudo, então contribua com ele. Se te ajudei de alguma forma, ficarei feliz em saber.
 
-Escrito por jade-abinajm
+Escrito por https://www.linkedin.com/in/jade-abinajm-3a08bb196/
